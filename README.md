@@ -1,4 +1,4 @@
-Ahmad is a skillful professional with more than 14 years of work experience in the area of Business 
+Ahmad is a skillful professional with more than 15 years of work experience in the area of Business 
 Intelligence, Advance Analytics, Data management, IT Risk and compliance reporting, Data Visualization, 
 and Customer relationship management while working with Banking, Insurance, Securities and HR 
 Analytics domains. He has good consulting, multiple stakeholder management exposure in leading high 
